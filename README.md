@@ -30,7 +30,7 @@
 ## Installation
 
 ```
-For Buy A too :- Cotact Us At Telegram  :- @rosteamadmin
+For Buy A tool Cotact Us At Telegram  :- @rosteamadmin
 ```
 
 ## Features
